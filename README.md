@@ -1,4 +1,4 @@
-⭐ Hi there 
+Hi there :star:
 
 Welcome to my profil !   🇫🇷     
 
