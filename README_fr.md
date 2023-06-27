@@ -1,4 +1,4 @@
-:star: Salut à tous
+Salut à tous ⭐
 
 Bienvenue sur mon profil ! 🇫🇷
 
